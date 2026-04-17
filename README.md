@@ -7,7 +7,7 @@ Software Developer from Guatemala 🇬🇹 passionate about building scalable sy
 </p>
 
 <p align="center">
-🚀 Open to remote opportunities | 🌎 Continuous learner | 💼 Currently working at Satellite
+🚀 Open to remote opportunities | 🌎 Continuous learner | 💼 Currently working at SAT
 </p>
 
 ---
